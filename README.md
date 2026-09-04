@@ -8,4 +8,6 @@ usually offtab ㅤ𓈒 ㅤwhisp2int </p>
 darkshipper ㅤ& ㅤcomshipper </p>
 <p align="center">
 block me if you're uncomfortable with that. </p>
+<p align="center">
+i don't remember names well, sorry.
 
