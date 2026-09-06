@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://i.ibb.co/5gkpSfx0/guh.webp" alt="welcome">
+<img src="https://i.ibb.co/0ynz5fqp/miam.png" alt="miam">
 <p align="center">
 aivan ㅤ/ ㅤadriel  ㅤ16yo ㅤhe ㅤhim </p>
 <p align="center">
