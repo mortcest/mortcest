@@ -3,7 +3,7 @@
 <p align="center">
 aivan ㅤ/ ㅤadriel  ㅤ16yo ㅤhe ㅤhim </p>
 <p alight="center">
-###### 17 on (10/09) !</p>
+17 on (10/09) !</p>
 <p align="center">
 usually offtab ㅤ𓈒 ㅤwhisp2int </p>
 <p align="center">
