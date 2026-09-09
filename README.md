@@ -2,8 +2,6 @@
 <img src="https://i.ibb.co/0ynz5fqp/miam.png" alt="miam">
 <p align="center">
 aivan ㅤ/ ㅤadriel  ㅤ16yo ㅤhe ㅤhim </p>
-<p alight="center">
-17 on (10/09) ! </p>
 <p align="center">
 usually offtab ㅤ𓈒 ㅤwhisp2int </p>
 <p align="center">
