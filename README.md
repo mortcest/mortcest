@@ -1,15 +1,13 @@
-<p align="center">
-<img src="https://i.ibb.co/9mnwvNm4/8825129f463b84018d01613a8d2f3a19.jpg" alt="8825129f463b84018d01613a8d2f3a19">
-<p align="center">
-aivan ㅤ/ ㅤadriel  ㅤ16yo ㅤhe ㅤhim </p>
-<p align="center">
-usually offtab ㅤ𓈒 ㅤwhisp2int </p>
-<p align="center">
-darkshipper ㅤ& ㅤcomshipper </p>
-<p align="center">
-block me if you're uncomfortable with that! </p>
-<p align="center">
-i don't remember names well, sorry :(
-<p align="center">
-both my pfp and my banner are my art! commission me now! :D
+<div alight=center>
+
+Aivan, Adriel, or Serene
+He Him
+16 yo
+###### 2009/10/09
+**Profic, Anti-Harassment. Dark & Comshipper.**
+###### block if you're uncomfortable with it, don't make it my problem.
+whisp2int, usually offtab.
+iwc always, 16- to 20+ pls dni.
+i don't remember names well, sorry.
+my pfp is my art! commission me now! :D
 
