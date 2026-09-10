@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://i.ibb.co/0ynz5fqp/miam.png" alt="miam">
+<img src="https://i.ibb.co/9mnwvNm4/8825129f463b84018d01613a8d2f3a19.jpg" alt="8825129f463b84018d01613a8d2f3a19">
 <p align="center">
 aivan ㅤ/ ㅤadriel  ㅤ16yo ㅤhe ㅤhim </p>
 <p align="center">
