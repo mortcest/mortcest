@@ -19,4 +19,7 @@ iwc always, 16- to 20+ pls dni.
 i don't remember names well, sorry.
 
 my pfp is my art! commission me now! :D
+
+don't fucking talk to me about shipping discourse i don't care i hate you
++ dni if you like miami morty but ignore his lore and entire personality
 </div>
