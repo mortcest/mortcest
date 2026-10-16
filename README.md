@@ -4,7 +4,7 @@ Aivan, Adriel, or Serene
 
 He Him
 
-17 yo BIRTHDAY TODAY
+17 yo 
 
 ###### 2009/10/09
 
